@@ -1,4 +1,4 @@
-I'm Charlie Elm, pirate, herald, and scientist.
+I'm Charlie Elm: pirate, herald, and scientist.
 
 I'm interested in learning everything I can.
 
